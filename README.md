@@ -1,7 +1,4 @@
-## 🖼 Pencils stories :  
 
-
----
 
 ###  Chacun son tour  
 *Graphite on paper — 29 × 20 cm*  
